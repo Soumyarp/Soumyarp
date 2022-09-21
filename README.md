@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Soumya
-- 👀 I’m interested in Music, Coding , Playing Outdoor and Indoor Stuffs etc etc..
-- 🌱 I’m currently updating my skills towards the improvement of Framework -- Its a never ending Process :)
+- 👀 I’m interested in Music, Coding , Travelling, Outdoor & Indoor Sports Activity  etc etc..
+- 🌱 I’m currently updating my skills towards the improvement of Framework -- It's a never ending Process :)
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ... @panigrahi.som@gmail.com
 
